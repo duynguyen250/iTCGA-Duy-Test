@@ -1,2 +1,5 @@
 # iTCGA-Duy-Project
-tips to organizing research
+Duy Nguyen
+Are math people consider scientists?
+Driving, Sleeping, Eating
+Pen, Paper, Computer
